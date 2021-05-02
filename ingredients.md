@@ -1,0 +1,11 @@
+Golden Fried Prawns
+- 14 pieces of prawn
+- 1 teaspoon corn starch
+- 2 tablespoonoyster sauce
+- 3/4 cup refined flour
+- salt according to taste
+- 1/2 teaspoon baking powder
+- 1 tablespoon lemon juice
+- 1 teaspoon soy sauce
+- 1/2 cup corn flour
+- refined oil
